@@ -1,1 +1,2 @@
-# eddyosuskin
+# eddy osu skins
+
